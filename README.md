@@ -1,1 +1,1 @@
-# Lactolac2026-StrategicpProposal
+# Lactolac2026-StrategicProposal
